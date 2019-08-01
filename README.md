@@ -1,3 +1,3 @@
-# Blog
+# Blog - by Faith
 
 ### Content
